@@ -24,6 +24,8 @@ Toate piesele se gasesc pe Youtube. Da-mi de stire daca unele nu pot fi accesate
 *  [Twelve Foot Ninja - Oxygen](https://www.youtube.com/watch?v=npgGBs0lIns)
 *  [Twelve Foot Ninja - Collateral](https://www.youtube.com/watch?v=KvPCQXWKRx8)
 *  [Tallah - Overconfidence](https://www.youtube.com/watch?v=S4rNFBk4hh0)
+*  [Gojira - Explosia](https://www.youtube.com/watch?v=ktU2TZOYHuI)
+*  [Gojira - L'Enfant Sauvage](https://www.youtube.com/watch?v=HPIt7cq6FiM)
 
 
 
