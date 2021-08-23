@@ -46,7 +46,7 @@ Toate piesele se gasesc pe Youtube. Da-mi de stire daca unele nu pot fi accesate
 *  [Cake - Frank Sinatra](https://www.youtube.com/watch?v=GVpb4U08ksA)
 *  [Chemical Brothers - Go](https://www.youtube.com/watch?v=AKZ1oa-LbjQ)
 *  [Chinese Man - Racing with the Sun](https://www.youtube.com/watch?v=RD8QLNiolfk)
-*  [Citizens - True Romance](https://www.youtube.com/watch?v=tcpDWkrHUI8)
+*  [Citizens - True Romance](https://www.youtube.com/watch?v=OrxxHlRs85U)
 *  [Concorde - Sons](https://www.youtube.com/watch?v=ZeBrnuQxEsQ)
 *  [Danger Mouse & Karen O - Turn the Light](https://www.youtube.com/watch?v=irNdfijo9n0)
 *  [Deluxe Ft. Acoustik Moustaches - Too Me](https://www.youtube.com/watch?v=FLYECCiSJ8U)
