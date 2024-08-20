@@ -17,6 +17,7 @@ Toate piesele se gasesc pe Youtube. Da-mi de stire daca unele nu pot fi accesate
 *  [Mastodon - Steambreather](https://www.youtube.com/watch?v=RlBVgsZ6Y-w)
 *  [Metallica - The Day That Never Comes](https://www.youtube.com/watch?v=sSxjSNLKh-Q)
 *  [Muse - Darkshines](https://www.youtube.com/watch?v=cTn288M5Mak)
+*  [Pendulum - Voodoo people](https://music.youtube.com/watch?v=ZYCm2cUjU7Y)
 *  [Sleeping Pillow - Amplifier in My Heart](https://www.youtube.com/watch?v=zgIRP_Ca0T0)
 *  [TOOL - The Pot](https://www.youtube.com/watch?v=civuoU_NE38)
 *  [Trepalium - Moonshine](https://www.youtube.com/watch?v=h-tDLuNw4kU)
@@ -54,9 +55,11 @@ Toate piesele se gasesc pe Youtube. Da-mi de stire daca unele nu pot fi accesate
 *  [Feist - How Come You Never Go There](https://www.youtube.com/watch?v=h65YIvjIV7E)
 *  [FiRMA & Ana Blandiana - Daca ne-am ucide unul pe altul](https://www.youtube.com/watch?v=wzdKnrw06x8)
 *  [Heartless Bastards - Only for You](https://www.youtube.com/watch?v=2l4alp0De8Y)
-*  [Shooting John - War](https://www.youtube.com/watch?v=X1EnbRDwpRs)
+*  [Gossip - Heavy Cross](https://music.youtube.com/watch?v=xjsFeRhKmxo)
+*  [IDLES - Pop Pop Pop](https://music.youtube.com/watch?v=40h7DQ6q_zc)
 *  [Massive Attack - Live with me](https://www.youtube.com/watch?v=YMmn-kD9XAk)
 *  [Meg Myers - Desire](https://www.youtube.com/watch?v=bR5u9jb0PJE)
+*  [Metronomy - The look](https://music.youtube.com/watch?v=tPEt7pJ1zMs)
 *  [Michael Kiwanuka - Cold Little Heart](https://www.youtube.com/watch?v=NuEghDO_j0o)
 *  [Moby - A Case For Shame](https://www.youtube.com/watch?v=j00LQHkwA5k) 
 *  [Morcheeba - Gained the World](https://www.youtube.com/watch?v=AyKXaqc7Czo)
@@ -68,8 +71,10 @@ Toate piesele se gasesc pe Youtube. Da-mi de stire daca unele nu pot fi accesate
 *  [Rhye - The Fall](https://www.youtube.com/watch?v=F6yfFWvoygY)
 *  [Rufus Wainwright - Going to a Town](https://www.youtube.com/watch?v=CtVyl402W5s)
 *  [Shivaree - Goodnight Moon](https://www.youtube.com/watch?v=waAam2n0kB0)
+*  [Shooting John - War](https://www.youtube.com/watch?v=X1EnbRDwpRs)
 *  [Studio Brussel: SX - Black video](https://www.youtube.com/watch?v=WyWx-Q1w0ok)
 *  [Tango with Lions - In a Bar](https://www.youtube.com/watch?v=IhqqZN0H7CI)
+*  [The Blue Stones - One by One](https://music.youtube.com/watch?v=41KWU3_Xmos)
 *  [The Veils - Candi Apple Red](https://www.youtube.com/watch?v=6L4IoQKi07w)
 *  [The War on Drugs - Thinking of a Place](https://www.youtube.com/watch?v=TeaDE1magRk)
 *  [Tindersticks - Willow](https://www.youtube.com/watch?v=8xNSN6Kd8rI)
@@ -117,12 +122,9 @@ Toate piesele se gasesc pe Youtube. Da-mi de stire daca unele nu pot fi accesate
 
 *  [John Coltrane & Duke Ellington - In A Sentimental Mood](https://www.youtube.com/watch?v=r594pxUjcz4)
 *  [Koop - Island Blues](https://www.youtube.com/watch?v=Ji0xDg6EVvI)
-
 -  [Madeleine Peyroux - Between The Bars](https://www.youtube.com/watch?v=FktNzLg_te4)
 -  [Mircea Tiberian, Cătălin Milea & Nadia Trohin - Inimă, nu fi de piatră](https://www.youtube.com/watch?v=O6jhEqJFgNE)
-
 *  [Moondog - Bird's Lament](https://www.youtube.com/watch?v=CCXogDxtUFg)
-
 *  [Nils Petter Molvaer - A Small Realm](https://www.youtube.com/watch?v=HpIVT4TYhBY)
 
 
@@ -131,6 +133,7 @@ Toate piesele se gasesc pe Youtube. Da-mi de stire daca unele nu pot fi accesate
 
 ## Electronic +
 
+*  [Creeds - Push up](https://www.youtube.com/watch?v=mNrzmpA8JU4)
 *  [Danger Mouse & Karen O - Redeemer](https://www.youtube.com/watch?v=Cgw44TzMWuo)
 *  [Kasper Bjørke: Apart](https://www.youtube.com/watch?v=s66J6C7l-Gc)
 *  [Kavinsky - Odd Look](https://www.youtube.com/watch?v=Zz-ug4nnHxg)
@@ -150,11 +153,15 @@ Toate piesele se gasesc pe Youtube. Da-mi de stire daca unele nu pot fi accesate
 *  [Son Lux - Alternate World](https://www.youtube.com/watch?v=5wnIs71n_kE)
 *  [Subcarpati - Animalul din Mine](https://www.youtube.com/watch?v=TYVHzPkRL7A)
 *  [Tim Hecker - Chimeras](https://www.youtube.com/watch?v=PNKTsJMYtPE)
+*  [The Chemical Brothers - Go](https://music.youtube.com/watch?v=AKZ1oa-LbjQ)
 *  [The Knife -  Rock Classics](https://www.youtube.com/watch?v=mwDxtM4Au94)
 *  [Tricky - When We Die](https://www.youtube.com/watch?v=z6Fubdh13QE)
 *  [Unders – Syria](https://www.youtube.com/watch?v=G5TBWxjnaIE)
-
-
+*  [Röyksopp & Robin - Monument](https://music.youtube.com/watch?v=vToxzaL9t_M)
+*  [Röyksopp - Here she comes again](https://music.youtube.com/watch?v=10IJDKVYfnA)
+*  [Röyksopp - Oh, Lover](https://music.youtube.com/watch?v=5iQns6z79oA)
+*  [xryce - Fuck it](https://music.youtube.com/watch?v=Sx6Ga8a_QmM)
+*  [Zabo - Somber](https://music.youtube.com/watch?v=LBzWoPXp8aY)
 
 
 
