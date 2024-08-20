@@ -4,10 +4,6 @@ Toate piesele se gasesc pe Youtube. Da-mi de stire daca unele nu pot fi accesate
 
 
 
-
-
-
-
 ## Rock
 
 *  [Audioslave - Shadow on the Sun](https://www.youtube.com/watch?v=dfF4t9-wpCM)
