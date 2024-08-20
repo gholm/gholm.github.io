@@ -3,10 +3,15 @@
 Toate piesele se gasesc pe Youtube. Da-mi de stire daca unele nu pot fi accesate.
 
 [Rock](#rock)
+
 [Pop rock, funk, experimental](#pop-rock--funk--experimental)
+
 [Folk+](#folk-)
+
 [Jazz+](#jazz-)
+
 [Electronic+](#electronic-)
+
 [Blues](#blues)
 
 
