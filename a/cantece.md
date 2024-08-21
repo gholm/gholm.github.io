@@ -30,7 +30,7 @@ Toate piesele se gasesc pe Youtube. Da-mi de stire daca unele nu pot fi accesate
 *  [Gojira - Explosia](https://www.youtube.com/watch?v=ktU2TZOYHuI)
 *  [Gojira - L'Enfant Sauvage](https://www.youtube.com/watch?v=HPIt7cq6FiM)
 
-<div style="text-align: right"> &#8593; [Sus](#)</div>
+&#8593; [Sus](#)
 
 
 
@@ -86,7 +86,7 @@ Toate piesele se gasesc pe Youtube. Da-mi de stire daca unele nu pot fi accesate
 *  [Urma - Slide](https://www.youtube.com/watch?v=lO0ekvmjlXI)
 *  [VNV Nation - Illusion](https://www.youtube.com/watch?v=mVf2EeTMNJo)
 
-<div style="text-align: right"> &#8593; [Sus](#)</div>
+&#8593; [Sus](#)
 
 
 
@@ -115,7 +115,7 @@ Toate piesele se gasesc pe Youtube. Da-mi de stire daca unele nu pot fi accesate
 *  [The Be Good Tanyas - When Doves Cry](https://www.youtube.com/watch?v=NnSz0lanL8c)
 *  [Uncle Lucius - Keep the Wolves Away](https://www.youtube.com/watch?v=oGXF5GgF9sI)
 
-<div style="text-align: right"> &#8593; [Sus](#)</div>
+&#8593; [Sus](#)
 
 
 
@@ -130,7 +130,7 @@ Toate piesele se gasesc pe Youtube. Da-mi de stire daca unele nu pot fi accesate
 *  [Moondog - Bird's Lament](https://www.youtube.com/watch?v=CCXogDxtUFg)
 *  [Nils Petter Molvaer - A Small Realm](https://www.youtube.com/watch?v=HpIVT4TYhBY)
 
-<div style="text-align: right"> &#8593; [Sus](#)</div>
+&#8593; [Sus](#)
 
 
 
@@ -166,7 +166,7 @@ Toate piesele se gasesc pe Youtube. Da-mi de stire daca unele nu pot fi accesate
 *  [xryce - Fuck it](https://music.youtube.com/watch?v=Sx6Ga8a_QmM)
 *  [Zabo - Somber](https://music.youtube.com/watch?v=LBzWoPXp8aY)
 
-<div style="text-align: right"> &#8593; [Sus](#)</div>
+&#8593; [Sus](#)
 
 
 ## Blues
@@ -179,7 +179,7 @@ Toate piesele se gasesc pe Youtube. Da-mi de stire daca unele nu pot fi accesate
 *  [Hannah Williams & the Tastemakers - Work it Out](https://www.youtube.com/watch?v=JBdSZIZjUsk)
 *  [Lhasa de Sela - Love Came Here](https://www.youtube.com/watch?v=Vz5c4doQ7Ak)
 
-<div style="text-align: right"> &#8593; [Sus](#)</div>
+&#8593; [Sus](#)
 
 
 
